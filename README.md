@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @ilFerrazz
-- 👀 I’m interested in rap music
-- 🌱 I’m currently learning graphic design
-- 💞️ I’m looking to collaborate on cleaning my workspace
-- 📫 How to reach me pigeon
+Graphic designer student, graffiti and rap music lover <3
