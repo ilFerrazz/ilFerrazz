@@ -1,1 +1,1 @@
-Graphic designer student, graffiti and rap music lover <3
+Graphic designer student <3
